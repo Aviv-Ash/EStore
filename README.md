@@ -12,6 +12,4 @@ men's/ woman's wear , including their price descriptions, and other relevant inf
 informed decisions.
 
 YouTube Video: https://www.youtube.com/watch?v=r_atvWxOQS8
-ווווו
-טםווווו
 
